@@ -1,3 +1,2 @@
-﻿# My-Documentations-And-Designs
-
-||| In the name of ALLAH ||| <br />
+### in the name of Allah
+# My-Documentations-And-Designs
